@@ -1,1 +1,3 @@
 # election_2018_forecast
+
+Here is my forecast. Democrats will win the house but not easily. The house race will be contingent on the large swell of early voting and participation this election cycle. This well help the democrats win key toss-up house races in places like the 25th district of California and the 26 district of Florida. Senate will also be close races but the Republicans will retain their majority and win every contested seat. Despite the contentious senate race currently going on in Texas, for example, Cruz will still emerge victorious. The Democrats will also fail to win Nevada or Arizona.
